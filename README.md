@@ -5,7 +5,7 @@
 ![image](https://github.com/user-attachments/assets/b5892f4d-9f87-4a30-b30d-aba181cd1ea2)
 
 
-
+<div align="center">　✦ . 　 　w2int 　+  　c+h ! 　 mostly offtab 　 . 　  dni kazuscara
 <div align="center">　➺ ╰ 　　read rentry and carrd !!
 
 <!--
