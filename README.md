@@ -12,7 +12,7 @@
 
   dni kazuscara　.　04/07　〃　*ceo of isolkania*
 <div align="center">　
-<div align="center">　➺ ╰ 　　read rentry for more .  
+<div align="center">　➺ ╰ 　　read carrd for more .  
 <div align="center">　
 
 <!--
