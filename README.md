@@ -6,14 +6,7 @@
 
 
 
-<div align="center"> she　/　her　ᛝ　kazuha main n enthusiast
-<div align="center">　comf : tartaglia　,　kazuha 　,　isolde 　　^_^
-<div align="center"> w2int　&　c+h　!!　mostly offtab　.
-
-  dni kazuscara　.　04/07　〃　*ceo of isolkania*
-<div align="center">　
-<div align="center">　➺ ╰ 　　read carrd for more .  
-<div align="center">　
+<div align="center">　➺ ╰ 　　read rentry and carrd !!
 
 <!--
 **dearvalenrie/dearvalenrie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
