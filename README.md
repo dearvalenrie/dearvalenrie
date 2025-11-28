@@ -6,7 +6,7 @@
 
 
 <div align="center">　✦ . 　 　w2int 　+  　c+h ! 　 mostly offtab 　 . 　  dni kazuscara
-<div align="center">　➺ ╰ 　　read rentry and carrd !!
+<div align="center">　➺ ╰ 　　straw ok .... rentry is very old
 
 <!--
 **dearvalenrie/dearvalenrie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
