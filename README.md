@@ -2,10 +2,11 @@
 
 <div align="center">
 
-![image](https://github.com/user-attachments/assets/b5892f4d-9f87-4a30-b30d-aba181cd1ea2)
+![17670172189697777224393510413561](https://github.com/user-attachments/assets/923fb310-e755-406d-aac0-1941a58416b8)
 
 
-<div align="center">　✦ . 　 　w2int 　+  　c+h ! 　 mostly offtab 　 . 　  dni kazuscara
+
+<div align="center">　✦ . 　 　w2int 　+  　c+h ! 　 mostly offtab 　 . 　  <3 kazuha
 <div align="center">　➺ ╰ 　　straw ok .... rentry is very old
 
 <!--
