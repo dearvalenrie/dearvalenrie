@@ -7,8 +7,9 @@
 
 
 <div align="center">　✦ . 　 　w2int 　+  　c+h ! 　 mostly offtab 　 . 　  <3 kazuha
-<div align="center">　➺ ╰ 　　straw ok .... rentry is very old
-
+<div align="center">　➺ ╰ 　　straw ok .... still working on the rentry
+<div align="center"> ══════════════
+<div align="center"> 𝗳𝗮𝗻𝗱𝗼𝗺𝘀⠀:⠀r1999, hsr gi and hi3, maybe hetalia, FNaF, moriarity the patriot, idv .. and much more i forgot
 <!--
 **dearvalenrie/dearvalenrie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
