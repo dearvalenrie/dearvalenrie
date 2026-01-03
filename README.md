@@ -6,9 +6,9 @@
 
 
 
-<div align="center">　beep beep still working on the rentry
+<div align="center">　i do alot of embarrassing stuff and i dont talk much
 <div align="center"> ══════════════
-<div align="center"> 𝗳𝗮𝗻𝗱𝗼𝗺𝘀⠀:⠀r1999, hsr gi and hi3, maybe hetalia, FNaF, moriarity the patriot, idv .. and much more i forgot
+<div align="center"> 𝗳𝗮𝗻𝗱𝗼𝗺𝘀⠀:⠀r1999, hsr gi and hi3, maybe hetalia, FNaF, moriarity the patriot, idv .. and much more i forgo
 <!--
 **dearvalenrie/dearvalenrie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
