@@ -2,8 +2,7 @@
 
 <div align="center">
 
-![17670172189697777224393510413561](https://github.com/user-attachments/assets/923fb310-e755-406d-aac0-1941a58416b8)
-
+![17705241002255108588444972145274](https://github.com/user-attachments/assets/1d9d18d3-a297-4a67-9269-a3b611e69a5b)
 
 
 <div align="center">　i do alot of embarrassing stuff and i dont talk much
